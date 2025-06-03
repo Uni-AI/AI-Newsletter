@@ -6,3 +6,4 @@ https://newsletter.nextool.ai
 
 # index:
 https://www.theunbelievableai.com
+https://www.theaireport.ai https://www.theaireport.ai/welcome-page
