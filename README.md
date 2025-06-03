@@ -19,6 +19,8 @@ https://chatgpt.com/g/g-bfZWHaAuZ-gpt-insider
 # Daniel Levis
 https://www.daniellevis.com
 
+https://getclients.daniellevis.com/introivideoapp
+
 # index:
 - https://www.theunbelievableai.com https://www.theunbelievableai.com/subscribe/
 - https://www.theaireport.ai https://www.theaireport.ai/welcome-page
