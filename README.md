@@ -24,6 +24,13 @@ https://getclients.daniellevis.com/introivideoapp
 # AI for Business Newsletter
 https://www.aiforbiznews.com
 
+# Insightful AI
+https://theinsightfulai.com/
+https://theinsightfulai.com/subscribe/
+
+https://x.com/RakibMahmud009
+
+
 # index:
 - https://www.theunbelievableai.com https://www.theunbelievableai.com/subscribe/
 - https://www.theaireport.ai https://www.theaireport.ai/welcome-page
