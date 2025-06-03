@@ -11,6 +11,11 @@ https://andrewbolis.kit.com/profile
 
 https://preferences.convertkit.com/subscribers/profile
 
+# GPT Insider
+https://www.gptinsiderai.com/
+
+https://chatgpt.com/g/g-bfZWHaAuZ-gpt-insider
+
 # index:
 - https://www.theunbelievableai.com https://www.theunbelievableai.com/subscribe/
 - https://www.theaireport.ai https://www.theaireport.ai/welcome-page
