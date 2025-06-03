@@ -16,6 +16,9 @@ https://www.gptinsiderai.com/
 
 https://chatgpt.com/g/g-bfZWHaAuZ-gpt-insider
 
+# Daniel Levis
+https://www.daniellevis.com
+
 # index:
 - https://www.theunbelievableai.com https://www.theunbelievableai.com/subscribe/
 - https://www.theaireport.ai https://www.theaireport.ai/welcome-page
