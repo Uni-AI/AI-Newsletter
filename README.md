@@ -28,3 +28,4 @@ https://getclients.daniellevis.com/introivideoapp
 - https://smarts-newsletter-ca5127.beehiiv.com/
 - https://thelimitlessjess.beehiiv.com/
 - https://www.smarterbusinesswithai.com/
+- https://www.creatorspotlight.com/
