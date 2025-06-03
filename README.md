@@ -20,3 +20,4 @@ https://chatgpt.com/g/g-bfZWHaAuZ-gpt-insider
 - https://www.theunbelievableai.com https://www.theunbelievableai.com/subscribe/
 - https://www.theaireport.ai https://www.theaireport.ai/welcome-page
 - https://bestaiforthejob.com https://aimarketingweekly.beehiiv.com/
+- https://smarts-newsletter-ca5127.beehiiv.com/
