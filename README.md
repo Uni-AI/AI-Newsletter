@@ -29,3 +29,4 @@ https://getclients.daniellevis.com/introivideoapp
 - https://thelimitlessjess.beehiiv.com/
 - https://www.smarterbusinesswithai.com/
 - https://www.creatorspotlight.com/
+- https://newsletter.gptldr.com/
