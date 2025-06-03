@@ -7,6 +7,8 @@ https://newsletter.nextool.ai
 # Andrew Bolis
 https://andrewbolis.com
 
+https://andrewbolis.kit.com/profile
+
 https://preferences.convertkit.com/subscribers/profile
 
 # index:
