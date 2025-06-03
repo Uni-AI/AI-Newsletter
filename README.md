@@ -21,6 +21,9 @@ https://www.daniellevis.com
 
 https://getclients.daniellevis.com/introivideoapp
 
+# AI for Business Newsletter
+https://www.aiforbiznews.com
+
 # index:
 - https://www.theunbelievableai.com https://www.theunbelievableai.com/subscribe/
 - https://www.theaireport.ai https://www.theaireport.ai/welcome-page
