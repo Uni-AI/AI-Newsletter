@@ -30,4 +30,5 @@ https://getclients.daniellevis.com/introivideoapp
 - https://www.smarterbusinesswithai.com/
 - https://www.creatorspotlight.com/
 - https://newsletter.gptldr.com/
-- https://www.futuretools.io/
+- https://www.futuretools.io/ https://x.com/mreflow Matt Wolfe 
+- https://absolutelyagentic.beehiiv.com/subscribe
